@@ -1,5 +1,5 @@
 Olá Me Chamo Myrella 💖
-Estou Atualmente Estudando Redes De Computadores/if 📚🏫
+Estou Atualmente Estudando Redes De Computadores/IF 📚🏫
 
  📄🖍️o(≧o≦)o🧸
 
